@@ -10,3 +10,4 @@ mooi verhaal hieronder findings tav de flow
 
 vanuit start twee buttons zetten naar back-ground. en how-to.  en weer terug.   er zit een rare sprong van background meteen naar een hoofstuk later in setup.
 
+#3 finding#3  quiz hoeft voor mij persoonlijk niet.  trauma. Yess We going to do a quizz..  zit er vaak standaard in.   Verhaal is vrij simpel (als je het door hebt )
