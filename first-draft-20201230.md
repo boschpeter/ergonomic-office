@@ -2,13 +2,11 @@
 
 
 
-[ergonohttps://360.articulate.com/review/content/759a052d-3e9f-400b-aede-977f4d818d48/review]
+[ mijn eerste e-training.](https://360.articulate.com/review/content/759a052d-3e9f-400b-aede-977f4d818d48/review]
 
 ## start
 
 
-![tt](.//pictures/eronomic_workspace_20201230_00.png)
-![tt](.//pictures/eronomic_workspace_20201230_01.png)
 ![tt](.//pictures/eronomic_workspace_20201230_02.png)
 ![tt](.//pictures/eronomic_workspace_20201230_03.png)
 ![tt](.//pictures/eronomic_workspace_20201230_04.png)
